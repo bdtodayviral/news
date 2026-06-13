@@ -1,2 +1,2 @@
 # news
-BD Today Viral News &amp; Media is an independent digital news platform.
+"Rater Cithi" is a reliable Bangla information resource on education, science, history, technology, entertainment, lifestyle and current events.
